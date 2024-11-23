@@ -16,8 +16,8 @@ My friends who dont have github YET I STILL FUCKINF LOVE!!!
   if youre a content smp fan, don't be afraid to interact with me! im always welcome to be interacted, if im offtab please w2i! <3
   i love content smp fans and i collect them on my friendlist >:3
 
-  `https://i.pinimg.com/736x/44/bc/fe/44bcfe446132dad852b672de64e33e13.jpg`
-this is me btw if u even care . ^_^
+
+
 <!--
 **JustAnthro/JustAnthro** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
