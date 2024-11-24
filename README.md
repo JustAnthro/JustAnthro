@@ -3,7 +3,7 @@
 love notes | a hello to my buddies !!
 
 my husband 
-- **@number1-Diansu-Enthusiest** , i love u , u silly goober !!
+- **@number1-Diansu-Enthusiast** , i love u , u silly goober !!
 
 MY FRIENDS I LOVEYOU 
 - **@whatengel666 , @clowndoons , @TheExplosiveSystem , @SimiQerriezz , @JealousCupid**
