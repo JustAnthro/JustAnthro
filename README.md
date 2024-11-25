@@ -10,7 +10,7 @@ MY FRIENDS I LOVEYOU
 
 
 My friends who dont have github YET I STILL FUCKINF LOVE!!! 
-- **poopies , stele , milo , AND MOST OF MY CONTENT SMP MOOTS I LOVE**
+- **poopies , stele , milo , asai AND MOST OF MY CONTENT SMP MOOTS I LOVE**
 
 
   if youre a content smp fan, don't be afraid to interact with me! im always welcome to be interacted, if im offtab please w2i! <3
